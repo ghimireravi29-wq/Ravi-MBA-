@@ -1,2 +1,2 @@
 # Ravi-MBA-
-This is tha page for my sport shop
+This is the page for my sport shop
